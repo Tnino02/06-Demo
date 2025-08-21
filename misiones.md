@@ -5,6 +5,8 @@
 3. Buscar nuevos miembros
 4. conflicto
 5.p´'iouyt
+6. dfghjklñ
+
 
 
 
